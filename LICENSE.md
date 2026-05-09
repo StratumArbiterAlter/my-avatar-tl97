@@ -1,4 +1,4 @@
-
+Experience my avatar like never before with rare my avatar Scripts, the #1 Script. Includes anti-ban and auto-upgrade for unbeatable performance.
 
 
 
